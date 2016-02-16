@@ -1,5 +1,6 @@
 # gitskills
-dfhweew1!
+I love Ruby!
+dfhweew1!!!!!
 dwfvqwrrg31r 24r 
 bdefhweo1fheqorh
 Creating a new branch is quick.
